@@ -1,6 +1,8 @@
-## Привет!
+## Hi!
 
-Шаня - замечательная кошечка!
+Sonny is a wonderful young pussycat!
+
+
 
 
 
